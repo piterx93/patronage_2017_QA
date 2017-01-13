@@ -1,1 +1,1 @@
-Rozwiązanie w pdf :)
+Rozwiązania w konkretnych folderach :)
